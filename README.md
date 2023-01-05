@@ -36,6 +36,8 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
+ ![GANESH 1 2_page-0001](https://user-images.githubusercontent.com/122046208/210847116-604372f6-b8dd-46f9-91ff-a56c23056abe.jpg)
+
  
  
  ## RESULT
